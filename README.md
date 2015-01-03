@@ -1,0 +1,1 @@
+http://static.fjcdn.com/pictures/Golf+hamster+_cdfd58_1984.jpg
